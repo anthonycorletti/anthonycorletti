@@ -1,1 +1,1 @@
-👋 [ciao](https://anthonycorletti.com)
+✌️ [ciao](https://anthonycorletti.com)
